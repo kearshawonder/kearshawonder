@@ -15,4 +15,7 @@
 
 🔗 **Let’s connect!** [Facebook](https://www.facebook.com/share/16D4QUXw49/)  
 
+https://x.com/Kearshawonder1?t=6F5_SAkReym_AyYGbw7MAA&s=09
 
+
+https://pin.it/3MnnCQP2q
